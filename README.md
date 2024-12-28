@@ -1,4 +1,4 @@
-# story-the-beginning-of-the-end-The Mask of the Past
+# story-The Mask of the Past
 In the dead of night, the room was shrouded in darkness, save for the dim glow of a flickering bulb. A woman’s muffled screams echoed through the air, her body contorting in agony as though each breath she took was a battle against the terror consuming her. The man looming over her wore an unsettling mask—its hollow, expressionless eyes staring into the woman’s soul. The mask did nothing to hide the cold, calculating emptiness in his gaze. His movements were deliberate, methodical, almost mechanical—like someone who had done this countless times before.
 Suddenly, Lucas gasped awake, drenched in sweat, his heart pounding in his chest. His eyes darted around the room, but the darkness seemed to press in on him, a suffocating weight. The nightmare, vivid and chilling, clung to him like a thick fog. His breath was ragged, his pulse erratic. He rubbed his face with trembling hands, the remnants of the dream still haunting the edges of his mind.
 “Lucas?” a soft voice broke through the heavy silence.
